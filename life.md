@@ -7,7 +7,7 @@ Mario 's life
 - 1983-1993 Via Premuda
 - 1994-1995 Cesena
 - 1996-1998 Via Tuscolana
-- 1998-~ Piazza Strozzi
+- 02/1998-~ Piazza Strozzi
 - 2011-~ Fregene
 - 09/1973-07/1978 Scuola Elementare Pianciani
 - 09/1978-07/1981 Scuola Media
